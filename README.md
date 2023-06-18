@@ -1,4 +1,4 @@
-🐾 Patile - Evcil Hayvanlarınız İçin Profesyonel Bakım ve Oyun Dünyası 🐾
+🐾 Patile - Evcil Hayvanlarınız İçin Profesyonel Bakım ve Oyun Dünyası 🐾 </br>
 Evcil hayvanlarınızın sağlıklı, aktif ve mutlu bir yaşam sürmeleri için onlara gereken ilgiyi ve bakımı sağlamak hiç bu kadar kolay olmamıştı! Patile, evcil kedi ve köpeklerinizin yürüyüş ihtiyaçlarını sertifikalı walkerlarımız aracılığıyla karşılamanızı sağlayan yenilikçi bir mobil uygulamadır.
 
 💼 Profesyonel ve Güvenilir Hizmetler 💼
