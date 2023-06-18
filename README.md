@@ -12,7 +12,7 @@ Patile, evcil hayvanlarınızın ihtiyaç duyduğu sevgiyi bulamayan veya kaybol
 
 <h4>🚶<b> Walker Olarak Kayıt Olun</b>  🚶</h4>
 Eğer evcil hayvanlarla vakit geçirmekten keyif alıyor ve para kazanmak istiyorsanız, Patile size mükemmel bir fırsat sunuyor. Walker olarak kaydolabilir, çeşitli eğitimler ve sınavlardan geçerek sizin için uygun konumlardaki hizmetleri gerçekleştirebilirsiniz. Evcil hayvanlarla eğlenerek hem onlara yardımcı olabilir hem de kazanç elde edebilirsiniz. Hayalini kurduğunuz mesleği yapma şansı sadece bir adım uzağınızda!
-</br>
+</br></br>
 
 Patile uygulamasıyla evcil hayvanlarınızın ihtiyaçlarını karşılayabilir, onlarla keyifli vakitler geçirebilir ve kaybolmuş dostları yeniden bir araya getirebilirsiniz. Profesyonel hizmetlerimiz ve eşsiz deneyimimizle hayvanseverlerin ilk tercihi olmaktan gurur duyuyoruz. Hemen Patile'yi indirin ve evcil hayvanlarınız için en iyisini sağlayın! 🐶🐱</br>
 
